@@ -1,4 +1,4 @@
-👩‍🎓 Hi, I’m @Adriana-Sasse Oi, EU sou Adriana Aparecida Sasse
+👩‍🎓 Oi, eu sou Adriana Aparecida Sasse
 👀 I’m interested in learning about HTML e CSS 
 🦋I’m currently learning SCRATCH E JAVASCRIPT
 👍
